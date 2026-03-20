@@ -1,3 +1,4 @@
+
 # about meh
 haaaiiii!!
 
@@ -11,3 +12,4 @@ other Fandoms: tally hall, lemon demon, cuphead, Spongebob, TBHK, I have no mout
 
 i will keep editing this from time to time so yah
 
+<img width="2000" height="1109" alt="Untitled114_20260319080655" src="https://github.com/user-attachments/assets/8474b903-e768-4422-ad26-8d8a2c8c23fd" />

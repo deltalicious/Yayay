@@ -6,10 +6,12 @@ Yew. an call me Delta, Ran, Raisins, whatever!! (just not me real name 😰)
 
 MAYYYBE I can get a little mean but I try to be kind to everyone
 
+i don't mind ppl taking inspo from my skins ¯⁠\⁠_⁠(⁠ツ⁠)⁠_⁠/⁠¯ if you actually copy me then credit would be appreciated 
+
+<img width="2000" height="1109" alt="Untitled114_20260319080655" src="https://github.com/user-attachments/assets/8474b903-e768-4422-ad26-8d8a2c8c23fd" />
+
 main fandoms: Deltarune, Undertale, Will Wood, TADC
 
 other Fandoms: tally hall, lemon demon, cuphead, Spongebob, TBHK, I have no mouth, portal, mlp, femtanyl, stomach book, that handsome devil, gravity falls, Futurama, disenchantment, vocaloid
 
 i will keep editing this from time to time so yah
-
-<img width="2000" height="1109" alt="Untitled114_20260319080655" src="https://github.com/user-attachments/assets/8474b903-e768-4422-ad26-8d8a2c8c23fd" />

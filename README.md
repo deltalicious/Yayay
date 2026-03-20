@@ -6,6 +6,8 @@ Yew. an call me Delta, Ran, Raisins, whatever!! (just not me real name 😰)
 
 MAYYYBE I can get a little mean but I try to be kind to everyone
 
+I'm kinda slow at replying to whispers cuz I hardly notice them but that's who be fine
+
 i don't mind ppl taking inspo from my skins ¯⁠\⁠_⁠(⁠ツ⁠)⁠_⁠/⁠¯ if you actually copy me then credit would be appreciated 
 
 <img width="2000" height="1109" alt="Untitled114_20260319080655" src="https://github.com/user-attachments/assets/8474b903-e768-4422-ad26-8d8a2c8c23fd" />

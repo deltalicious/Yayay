@@ -16,4 +16,6 @@ main fandoms: Deltarune, Undertale, Will Wood, TADC
 
 other Fandoms: tally hall, lemon demon, cuphead, Spongebob, TBHK, I have no mouth, portal, mlp, femtanyl, stomach book, that handsome devil, gravity falls, Futurama, disenchantment, vocaloid
 
+you'll mostly see me in the deltarune zone, Tadc zone or in the bakery
+
 i will keep editing this from time to time so yah

@@ -18,4 +18,4 @@ other Fandoms: tally hall, lemon demon, cuphead, Spongebob, TBHK, I have no mout
 
 you'll mostly see me in the deltarune zone, Tadc zone or in the bakery
 
-i will keep editing this from time to time so yah
+i will keep updating this from time to time so yah (I still got some stuff to learn on this app to make my profile look less fugly LOL)

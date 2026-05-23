@@ -10,13 +10,11 @@ I'm kinda slow at replying to whispers cuz I hardly notice them but that's shoul
 
 i don't mind ppl taking inspo from my skins ¯⁠\⁠_⁠(⁠ツ⁠)⁠_⁠/⁠¯ if you actually copy me then credit would be appreciated 
 
-<img width="2000" height="1109" alt="Untitled114_20260319080655" src="https://github.com/user-attachments/assets/8474b903-e768-4422-ad26-8d8a2c8c23fd" />
+main fandoms: Deltarune, Undertale, Will Wood,
 
-main fandoms: Deltarune, Undertale, Will Wood, TADC
+other Fandoms:TADC, tally hall, lemon demon, cuphead, Spongebob, TBHK, I have no mouth, portal, mlp, femtanyl, stomach book, that handsome devil, gravity falls, Futurama, disenchantment, vocaloid
 
-other Fandoms: tally hall, lemon demon, cuphead, Spongebob, TBHK, I have no mouth, portal, mlp, femtanyl, stomach book, that handsome devil, gravity falls, Futurama, disenchantment, vocaloid
-
-you'll mostly see me in the deltarune zone, Tadc zone or in the bakery
+you'll mostly see me in the deltarune zone or in the bakery
 
 I almost never talk to ppl first, doesn't mean I don't want to so pls feel free to just yap to me 😌
 

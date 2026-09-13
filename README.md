@@ -10,12 +10,10 @@ I'm kinda slow at replying to whispers cuz I hardly notice them but that's shoul
 
 i don't mind ppl taking inspo from my skins ¯⁠\⁠_⁠(⁠ツ⁠)⁠_⁠/⁠¯ if you actually copy me then credit would be appreciated 
 
-main fandoms: Deltarune, Undertale, Will Wood,
+main interests: ut/dr, Will Wood, FAA
 
-other Fandoms:TADC, tally hall, lemon demon, cuphead, Spongebob, TBHK, I have no mouth, portal, mlp, femtanyl, stomach book, that handsome devil, gravity falls, Futurama, disenchantment, vocaloid
-
-you'll mostly see me in the deltarune zone or in the bakery
+stuff I like:TADC, tally hall, lemon demon, cuphead, Spongebob, TBHK, I have no mouth, portal, mlp, femtanyl, stomach book, that handsome devil, gravity falls, Futurama, disenchantment, vocaloid
 
 I almost never talk to ppl first, doesn't mean I don't want to so pls feel free to just yap to me 😌
 
-i will (maybe) keep updating this from time to time so yah (I still got some stuff to learn on this app to make my profile look less fugly LOL)
+i will (maybe) keep updating this from time to time so yah (I still got some stuff to learn on this app to make my profile look less fugly LOL I’m lazy tho)
